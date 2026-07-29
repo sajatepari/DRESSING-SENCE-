@@ -1,2 +1,2 @@
-# DRESSING-SENCE-
-Official website of DRESSING SENCE
+# DRESSING-SENSE-
+Official website of DRESSING SENSE
